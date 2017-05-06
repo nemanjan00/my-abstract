@@ -30,7 +30,9 @@ She was a very smart girl and a nice person.
 
 We talked for hours and that whole time, we were both feeling sorry for myself. 
 
+It finally stuck me. 
 
+I wanted to have sex with her. 
 
 ### Moment number two
 
