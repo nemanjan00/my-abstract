@@ -38,5 +38,11 @@ I wanted to have sex with her.
 
 It all changed in one single moment. 
 
+That is the first time in my life I figured out how strong my instincts were. 
+
+Suddenly noting else mattered. 
+
+I was animal looking for mating partner. 
+
 ### Moment number two
 
