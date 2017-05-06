@@ -2,6 +2,8 @@
 
 So, what the fuck is happening in my head? 
 
+Let's make our assumptions based on theory of big numbers and see for ourselves how good it fits reality. 
+
 Let's say you have some pebble and sieve. 
 
 What does sieve do? 
