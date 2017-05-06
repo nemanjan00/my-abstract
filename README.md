@@ -8,3 +8,5 @@ I am just warning you, what you are about to read is not easy to process and it 
 
 Our brain is built to defend us from what I figured out. 
 
+This is story of two moments and how they changed my live and the way I see it. 
+
