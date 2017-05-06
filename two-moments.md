@@ -62,5 +62,13 @@ Anyway, I felt empty.
 
 What was happening to me? 
 
+What did I do with my life? 
 
+Nothing. 
+
+There I was, laying in female hair of all different kinds of colors, again feeling sorry for myself. 
+
+I thought I have finally found my life meaning. 
+
+Or did I? 
 
