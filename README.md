@@ -1,4 +1,10 @@
 # My Abstract
 
-My Abstract is book which is a good representation of how I see world. 
+My Abstract is crazy story you are not going to belive. 
+
+If you are not openminded, you should most probably close it right now. 
+
+I am just warning you, what you are about to read is not easy to process and it is not my fault if you kill yourself or die from stress. 
+
+Our brain is built to defend us from what I figured out. 
 
