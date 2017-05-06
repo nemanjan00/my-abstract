@@ -48,3 +48,5 @@ What I am saying is that you can be the one who hides or the one who fights.
 
 You have genes for both. 
 
+### Growing up...
+
