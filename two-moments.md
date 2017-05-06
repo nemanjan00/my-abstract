@@ -72,3 +72,21 @@ I thought I have finally found my life meaning.
 
 Or did I? 
 
+What was missing? 
+
+My whole life, I saw myself as someone who was going to accomplish big things. 
+
+I did not. 
+
+I turned around and I figured out whole time I was getting out of my way of success out of being scared of succeeding. 
+
+Because, what then? 
+
+Am I walking into unknown?
+
+It is wired into us to be afraid of change. 
+
+We are not built to handle change. 
+
+We were built to handle survival and survival meant using well known route. 
+
