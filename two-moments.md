@@ -46,3 +46,21 @@ I was animal looking for mating partner.
 
 ### Moment number two
 
+Year passed. 
+
+There I was. 
+
+In bed. 
+
+For three days. 
+
+I was not crying. 
+
+I figured out long time ago nothing good was coming out of it. 
+
+Anyway, I felt empty. 
+
+What was happening to me? 
+
+
+
