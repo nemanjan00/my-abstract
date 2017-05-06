@@ -18,7 +18,9 @@ I asked myself if there was was something wrong with me.
 
 Excuses started pouring in. 
 
-My mind kicked in to protect me. Suddenly I was blaming everything and everyone. 
+My mind kicked in to protect me. 
+
+Suddenly I was blaming everything and everyone. 
 
 What I did not figure out then is that there indeed was something wrong with me. 
 
@@ -28,11 +30,13 @@ Called first person I knew would comfort me.
 
 She was a very smart girl and a nice person. 
 
-We talked for hours and that whole time, we were both feeling sorry for myself. 
+We talked for hours and that whole time, we were both feeling sorry for me. 
 
-It finally stuck me. 
+It finally struck me. 
 
 I wanted to have sex with her. 
+
+It all changed in one single moment. 
 
 ### Moment number two
 
