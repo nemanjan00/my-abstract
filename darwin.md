@@ -26,3 +26,25 @@ That means, as a community, we still have two sets of features.
 
 We are split into those with genes that survived times of caves people by being strongest or by being good at avoiding conflicts. 
 
+### Don't genes get mixed? 
+
+Well, we have all learned in biology that there are dominant and less dominant. 
+
+The fact is, these genes are not dominant based on facts that they are more likely to make you survive or not but on pure chemistry. 
+
+So, what does that mean? 
+
+It means that genes are also preselected on their chemistry. 
+
+Does that mean that not only good genes survive? 
+
+Not really... 
+
+If you randomly take small sand from sand pile, you still end up with small sand. 
+
+Only real effect of mixing genes is that people have mixed features and it is up to them, their genes and their development to decide which genes will get expressed more than others. 
+
+What I am saying is that you can be the one who hides or the one who fights. 
+
+You have genes for both. 
+
