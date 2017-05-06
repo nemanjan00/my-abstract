@@ -22,5 +22,15 @@ My mind kicked in to protect me. Suddenly I was blaiming everything and everyone
 
 What I did not figure out then is that there indeed was something wrong with me. 
 
+As any other human would do, I picked up the phone. 
+
+Called first person I knew would comfort me. 
+
+She was a very smart girl and a nice person. 
+
+We talked for hours and that whole time, we were both feeling sorry for myself. 
+
+
+
 ### Moment number two
 
