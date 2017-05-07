@@ -56,3 +56,11 @@ Online, I was king.
 
 Offline, I was just a lazy guy that had no friends. 
 
+With time, I started to deceive myself, more then others. 
+
+I needed that other world, but, I was afraid of it. 
+
+I was king visiting village in clothes of homeless person. 
+
+I did not want to feel lost and powerless again. 
+
