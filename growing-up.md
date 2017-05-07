@@ -20,4 +20,19 @@ Since being very little, I was taught I was better than most of kids around me, 
 
 Suddenly, I felt out of control, which is something that is still in me, to a point. 
 
+I started closing into myself. 
+
+I was my best friend. 
+
+I was my role-model and my parents became enemies. 
+
+I spent most of my time disassembling my toys and trying to figure out how they worked. 
+
+That is when I found another world. 
+
+World where I can be god. 
+
+World where I can make stuff do what I want... 
+
+World that is different to one I was born inside. 
 
