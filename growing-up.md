@@ -50,3 +50,9 @@ I got very good at avoiding other people and obligations.
 
 So good that there were moments that I was feeling alone, but, I was anyway unknowingly avoiding people. 
 
+Why did I do that? 
+
+Online, I was king. 
+
+Offline, I was just a lazy guy that had no friends. 
+
