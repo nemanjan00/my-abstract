@@ -18,6 +18,6 @@ I did not have much friends.
 
 Since being very little, I was taught I was better than most of kids around me, because "You are a good kid. ". 
 
-
+Suddenly, I felt out of control, which is something that is still in me, to a point. 
 
 
