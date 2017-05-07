@@ -58,3 +58,9 @@ Since you spend most of your time, you do learn a lot from your parents.
 
 You could say almost whole personality you have is based on people around you and media influence. 
 
+In my opinion, one of most important tasks for all of us, humans is to be good role models for kids. 
+
+What I think a common mistake is that we are teaching kids to be "good, hard working, etc. ". 
+
+We should teach them how to be happy and how to be able to change their own life. 
+
