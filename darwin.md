@@ -50,3 +50,11 @@ You have genes for both.
 
 ### Growing up...
 
+I think growing up is a very powerful factor in forming every personality. 
+
+As a child, you are a lot more susceptible to influence from other people. 
+
+Since you spend most of your time, you do learn a lot from your parents. 
+
+You could say almost whole personality you have is based on people around you and media influence. 
+
