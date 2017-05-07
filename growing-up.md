@@ -40,3 +40,13 @@ World where I can make stuff do what I want...
 
 World that is different to one I was born inside. 
 
+### Master of deception
+
+I lived in one world. I was also in another world. 
+
+How did I accomplish living in two world? 
+
+I got very good at avoiding other people and obligations. 
+
+So good that there were moments that I was feeling alone, but, I was anyway unknowingly avoiding people. 
+
