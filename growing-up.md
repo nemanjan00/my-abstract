@@ -1,4 +1,6 @@
-# Growing up
+## Growing up
+
+### World I was born in
 
 As a child, I grew up in as street with a lot criminals kids. 
 
@@ -11,6 +13,8 @@ You could say their goal is to survive by taking well known routes.
 Me, on the other hand... I was crazy kid... 
 
 As a 2 year old, I was laing down on women on beach, because sand is hot... 
+
+### World I lived in
 
 Suddenly, I changed. 
 
