@@ -3,5 +3,5 @@
 * [Introduction](README.md)
 * [Two moments](./two-moments.md)
 * [Darwin, that crazy bastard...](./darwin.md)
-* [Growing up](./darwin.md)
+* [Growing up](./growing-up.md)
 
