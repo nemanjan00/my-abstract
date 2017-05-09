@@ -10,7 +10,12 @@ Our brain is built to defend us from what I figured out.
 
 This book is giving you chance to figure it out for yourself. 
 
-This is story of two moments and how they changed my live and the way I see it. 
+## Questionnaires
 
-I am very fucked up and crazy person. That is what makes me and everyone around me happy. 
+Before and after each segment of book, there will be same questionnaire with questions related to that chapter. 
+
+I want you to get a pen and paper and, each time you encounter questionnaire, write down your answers. 
+
+Later, you can compare answers to same questions before and after reading that segment. 
+
 

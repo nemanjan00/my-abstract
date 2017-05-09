@@ -22,6 +22,10 @@ If we add time to that equation, then, we can notice one more thing...
 
 Gens that were selected at certain points of time were selected based of that if they were good genes at THAT PARTICULAR TIME. 
 
+If we think about cave men, we can say there were two ways to survive. 
+
+Be strongest and craziest motherfucker or hide. 
+
 That means, as a community, we still have two sets of features. 
 
 We are split into those with genes that survived times of caves people by being strongest or by being good at avoiding conflicts. 
