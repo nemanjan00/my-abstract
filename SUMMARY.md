@@ -1,8 +1,11 @@
 # Summary
 
 * [Introduction](README.md)
-* [Questionnaire 1](./questionnaire-1.md)
-* [Two moments](./two-moments.md)
-* [Darwin, that crazy bastard...](./darwin.md)
-* [Growing up](./growing-up.md)
+
+## Instincts
+
+* [Questionnaire](./instincts/questionnaire.md)
+* [Two moments](./instincts/two-moments.md)
+* [Darwin, that crazy bastard...](./instincts/darwin.md)
+* [Growing up](./instincts/growing-up.md)
 
