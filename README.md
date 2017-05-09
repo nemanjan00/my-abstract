@@ -12,10 +12,10 @@ This book is giving you chance to figure it out for yourself.
 
 ## Questionnaires
 
-Before and after each segment of book, there will be same questionnaire with questions related to that chapter. 
+Before each segment of book, there will be questionnaire with questions related to that chapter. 
 
-I want you to get a pen and paper and, each time you encounter questionnaire, write down your answers. 
+I want you to get a pen and paper and, before and after reading segment, write down your answers. 
 
-Later, you can compare answers to same questions before and after reading that segment. 
+Later, you can compare your answers. 
 
 
