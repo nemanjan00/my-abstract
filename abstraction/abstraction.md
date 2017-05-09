@@ -20,9 +20,9 @@ It is just abstraction, representation of signal from your eye that says which f
 
 With time, we collect signals from our senses, we spot patterns and create abstractions. 
 
-How do you recognize patterns? 
+### How do you recognize patterns? 
 
-By interconnecting abstractions. 
+By interconnecting abstractions and assumptions. 
 
 If you see digits, screen, speaker and microphone, your brain will find connection of all of them to a phone and you will know that it is a phone. 
 
