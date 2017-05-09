@@ -9,3 +9,7 @@
 * [Darwin, that crazy bastard...](./instincts/darwin.md)
 * [Growing up](./instincts/growing-up.md)
 
+## Abstraction
+
+* [Abstraction](./abstraction/abstraction.md)
+
