@@ -64,3 +64,5 @@ I was king visiting village in clothes of homeless person.
 
 I did not want to feel lost and powerless again. 
 
+It was very bad and very good time for me, as I will later find out (I developed the shit out of my brain) . 
+
